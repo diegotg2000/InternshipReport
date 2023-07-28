@@ -9,7 +9,8 @@ This README.md serves the purpose of sharing some of the audio files generated d
 
 ### Architectural Modifications
 
-https://github.com/diegotg2000/InternshipReport/assets/46940818/b5bdfa74-af84-41ce-a9ab-6c9b27f89896
+
+https://github.com/diegotg2000/InternshipReport/assets/46940818/0da7c4b7-dc4a-4986-afed-d15e24ebfacf
 
 https://github.com/diegotg2000/InternshipReport/assets/46940818/54b87cc9-6772-477a-819e-c7d49df3fc0d
 
