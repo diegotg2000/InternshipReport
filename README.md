@@ -35,7 +35,6 @@ https://github.com/diegotg2000/InternshipReport/assets/46940818/e1df3510-b06c-4c
 
 ### Embedding Learning
 
-
 https://github.com/diegotg2000/InternshipReport/assets/46940818/6fb1237e-8df7-4690-ae73-a89d21969285
 
 https://github.com/diegotg2000/InternshipReport/assets/46940818/27dc78dc-82c1-4062-9a7e-230dac4fc5fe
@@ -43,4 +42,17 @@ https://github.com/diegotg2000/InternshipReport/assets/46940818/27dc78dc-82c1-40
 https://github.com/diegotg2000/InternshipReport/assets/46940818/453f8d00-48d1-4c23-bbe6-ef4eda8d9bc6
 
 
+## Pitch Manipulation
+
+https://github.com/diegotg2000/InternshipReport/assets/46940818/c0677904-31f7-4458-b7e6-ed7ef00c52e7
+
+https://github.com/diegotg2000/InternshipReport/assets/46940818/fb3d6e30-99b6-4ee7-b7cb-9778a9ab0092
+
+https://github.com/diegotg2000/InternshipReport/assets/46940818/61e9ba9b-5b15-4dbe-b337-b5beea0ff821
+
+https://github.com/diegotg2000/InternshipReport/assets/46940818/d8425f50-1e84-49a9-ad76-d25b933fb341
+
+https://github.com/diegotg2000/InternshipReport/assets/46940818/8706c9ee-5fb5-4311-bf5a-2e8c1876571c
+
+https://github.com/diegotg2000/InternshipReport/assets/46940818/b5bdfa74-af84-41ce-a9ab-6c9b27f89896
 
