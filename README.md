@@ -1,5 +1,6 @@
 # Speech Synthesis System for a low-resource language with spontaneous speech
 
+This README.md serves the purpose of sharing some of the audio files generated during the internship.
 
 ## Voice Anonymization
 
