@@ -17,3 +17,18 @@ https://github.com/diegotg2000/InternshipReport/assets/46940818/bd937072-a344-44
 
 https://github.com/diegotg2000/InternshipReport/assets/46940818/0d4a7c22-2ac5-4eea-9bc8-a0064d964f62
 
+
+### Architectural Modifications
+
+https://github.com/diegotg2000/InternshipReport/assets/46940818/0811a55a-4360-4ad9-aeca-11981e93d568
+
+https://github.com/diegotg2000/InternshipReport/assets/46940818/db195667-a1d8-47ac-98b6-2e4addf04aea
+
+https://github.com/diegotg2000/InternshipReport/assets/46940818/384a14c3-0fbc-42f9-9ea5-eb4171a68b21
+
+https://github.com/diegotg2000/InternshipReport/assets/46940818/1c242aa6-dcbe-47a5-bc08-b9f74c9b937b
+
+https://github.com/diegotg2000/InternshipReport/assets/46940818/4f6f82a2-283c-4471-9727-b6932f14d0c7
+
+https://github.com/diegotg2000/InternshipReport/assets/46940818/e1df3510-b06c-4caa-89b5-485d5dc83cca
+
