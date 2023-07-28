@@ -32,3 +32,15 @@ https://github.com/diegotg2000/InternshipReport/assets/46940818/4f6f82a2-283c-44
 
 https://github.com/diegotg2000/InternshipReport/assets/46940818/e1df3510-b06c-4caa-89b5-485d5dc83cca
 
+
+### Embedding Learning
+
+
+https://github.com/diegotg2000/InternshipReport/assets/46940818/6fb1237e-8df7-4690-ae73-a89d21969285
+
+https://github.com/diegotg2000/InternshipReport/assets/46940818/27dc78dc-82c1-4062-9a7e-230dac4fc5fe
+
+https://github.com/diegotg2000/InternshipReport/assets/46940818/453f8d00-48d1-4c23-bbe6-ef4eda8d9bc6
+
+
+
