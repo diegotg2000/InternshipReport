@@ -45,6 +45,8 @@ https://github.com/diegotg2000/InternshipReport/assets/46940818/407470a1-ef2b-48
 
 ## Pitch Manipulation
 
+### Old Model
+
 https://github.com/diegotg2000/InternshipReport/assets/46940818/c805874c-88c5-4a42-831f-cfd0419f1f16
 
 https://github.com/diegotg2000/InternshipReport/assets/46940818/1162171d-efd0-4a30-8edb-83d5b7905f7d
@@ -56,6 +58,14 @@ https://github.com/diegotg2000/InternshipReport/assets/46940818/5ca13998-153a-47
 https://github.com/diegotg2000/InternshipReport/assets/46940818/2d31663a-7df8-44a3-a931-cd82481ed712
 
 https://github.com/diegotg2000/InternshipReport/assets/46940818/139407d9-e389-4c67-a50b-3fde431b21ea
+
+
+### New Model
+
+https://github.com/diegotg2000/InternshipReport/assets/46940818/a910bcfd-3c8a-4599-bc53-bd7128b3882a
+
+https://github.com/diegotg2000/InternshipReport/assets/46940818/eaba10d6-7949-43d2-806d-80aebf942734
+
 
 
 
